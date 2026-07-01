@@ -2,7 +2,7 @@
 
 **Senior Data Platform Engineer** · Building distributed data infrastructure
 
-Shanghai, China · Open to Global Remote · [jromeguan@gmail.com](mailto:jromeguan@gmail.com)
+Shanghai, China · Open to Global Remote · [jromeguan@gmail.com](mailto:jromeguan@gmail.com) · [LinkedIn](https://www.linkedin.com/in/jrome-guan-47888241a)
 
 ---
 
